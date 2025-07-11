@@ -1,2 +1,1 @@
-# ngentotadikkakak
-ngentotadikkakak
+# [ngentotadikkakak](https://ngentotadikkakak.pages.dev)
